@@ -1,0 +1,2 @@
+# praktikum
+NAMA ANGGOTA KELOMPOK 6
